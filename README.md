@@ -27,7 +27,7 @@ Smartphone Version:
 
 ## 🤝 Contribution
 Projeto aberto para ajuda!
-
+kkkkkkkkkkkkk
 
 ### Support Ou Contact
 
